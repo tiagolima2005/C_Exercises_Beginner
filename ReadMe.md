@@ -1,0 +1,1 @@
+This are 5 beginner level exercises i asked ChatGPT for
