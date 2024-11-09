@@ -1,1 +1,2 @@
-This are 5 beginner level exercises i asked ChatGPT for
+[FINISHED}
+These are 5 beginner-level exercises I asked ChatGPT for
